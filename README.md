@@ -1,2 +1,2 @@
-🌱 **I’m currently learning JAVASCRIPT
+🌱 **I’m currently learning JAVASCRIPT**
 
